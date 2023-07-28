@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Harshvadan10
 - 👀 I’m interested in Software Testing 
-- 🌱 I’m currently learning and exploring software testing field.
+- 🌱 I’m currently looking for software testing jobs and learning new skills.
 - 📫 How to reach me - harshvadanrode10@gmail.com
